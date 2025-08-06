@@ -1,1 +1,0 @@
-# Cv-JuanMendez.github.io
